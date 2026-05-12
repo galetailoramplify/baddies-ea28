@@ -1,4 +1,4 @@
-#  
+#  vip Scripts for baddies is the best baddies Script, featuring teleport and aimbot. Safe and powerful for all your needs.
 
 
 
